@@ -1,4 +1,4 @@
-## 👏 Hi, I'm Jaxson Peety
+## 👏 Hi, I'm Jaxson Petty
 ##  About Me
 I am 20 years old and my birthday is in January. I like coding and I play a lot of video games. I am a huge fan of Star Wars but my favorite movie of all time is Pacific Rim. I love metal music my top 3 bands are Megadeth, Iron Maiden, and Anthrax.
 ## ⚒️ Skills
